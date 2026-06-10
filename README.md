@@ -1,1 +1,0 @@
-# Pertemuan2_DataScience_RinandahWulandariRamadhani
